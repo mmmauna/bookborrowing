@@ -11,8 +11,11 @@ Group 4:
 Leader: Monjahedin Mauna
 
 Member:
+
 Evamae Apostol
+
 Hailie Jade Canlas
+
 Myk Ivan Josh Velasquez
 
 
